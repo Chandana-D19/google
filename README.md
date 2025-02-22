@@ -1,2 +1,2 @@
-# google
-- link: https://lgygjgghbv.ccbp.tech/
+# gallery
+- link: https://hasgdjkgsduy.ccbp.tech/
